@@ -1,1 +1,1 @@
-**Strong** __Storng__
+**Strong** __Strong__
